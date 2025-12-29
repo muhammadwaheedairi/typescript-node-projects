@@ -43,8 +43,8 @@ Contributions, suggestions, and feedback are always welcome! 🌟 Feel free to f
 
 Let’s connect and stay in touch! You can find me on:
 
-- **LinkedIn**: [Your LinkedIn](https://www.linkedin.com/in/muhammadwaheedaree/)
-- **GitHub**: [Your GitHub](https://github.com/muhammadwaheedaree)
+- **LinkedIn**: [Your LinkedIn](https://www.linkedin.com/in/muhammadwaheedairi/)
+- **GitHub**: [Your GitHub](https://github.com/muhammadwaheedairi)
 
 ---
 
